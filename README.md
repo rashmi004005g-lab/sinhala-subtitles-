@@ -1,2 +1,2 @@
-# sinhala-subtitles-
+ sinhala-subtitles-
 ලියැසි SUBVERSE subtitles 
